@@ -14,7 +14,7 @@
   <br> ever. i dare you to do it.
   <br> ✿ 𓈒　another thing to mention is that i love regiscouts. they're awesome.
   <br> i like to collect them, to see what silly things await me, to be happy and free.
-  <br> some regis i reside in include : cc, cb, dxsk, tfr, zomg, and my own, ccr.
+  <br> some regis i reside in include : cb, dxsk, tfr, zomg, bug🐛, and my own, ccr.
   <br> ✦ 𓈒　i think that's really it from me. if (for some reason) you'd like to get
   <br> to know me more; catch me online some time. chatting isn't the easiest
   <br> for me, but it's sure fun. let me get in ya brain, let's talk

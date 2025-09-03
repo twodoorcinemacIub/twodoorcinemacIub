@@ -4,7 +4,7 @@
   <br> that enjoys playing a pixelated little pony game. i like horses.
   <br> ✿ 𓈒　my pronouns are it/fog/vir mainly; do not use they on me. strictly an "it"
   <br> for people i do not know. an example: "it is online, i should say hi to fog."
-  <br> ✦ 𓈒　my main interests include : rats smp, outsiders smp, dawko egos, minecraft,
+  <br> ✦ 𓈒　my main interests include : umamusume, rats smp, dawko egos, minecraft,
   <br> rock-afire explosion, glass animals, vocaloid, and more.
   <br> ✜ 𓈒　one thing about me is that i have chronic bpd related traits, and this will affect how
   <br> i act. please note that this cannot be helped by me and i am simply trying my best.
